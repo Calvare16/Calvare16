@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to tie my shoes
 - 💞️ I’m not really looking to collaborate
 - 📫 How to reach me alphaboy@cheerful.com
-- 😄 Pronouns: real prounouns are he/him but you can call me she/her too.
+- 😄 Pronouns: biological prounouns are he/him but you can call me she/her too.
 - ⚡ Fun fact: uhhhhh... did you kno- did..... Did you know that the sky is blue?
 
 <!---
